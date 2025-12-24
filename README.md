@@ -7,9 +7,9 @@
 
 nowadays I am really into P2P and encryption, And ofcourse ai too (mostly local ones of all sorts). and I am playing chess and badminton everyday these days so that's pretty cool ig
 
-*I am trying to get into a college but most of them are crappy where I live so I am still figuring out what to do about that.
+I am trying to get into a college but most of them are crappy where I live so I am still figuring out what to do about that.
 
-email me if you can help!*
+email me if you can help!
 
 
 
